@@ -1,2 +1,2 @@
-# Taiseiken-Contuct
+# TaiseikenContuct
 プライバシーポリシー
